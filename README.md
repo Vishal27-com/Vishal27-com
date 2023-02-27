@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **vishalgupta962148@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1wNSvCSb5x2TAf5T-m4aEgiWo_NWC4-WU/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/18NQSl3i2PUcpCKj9geRTDKhgPMwQiMLD/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
